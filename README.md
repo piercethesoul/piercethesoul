@@ -7,6 +7,6 @@
 &nbsp;&nbsp;&nbsp;&nbsp;often offtab :/ open c+h feel free to talk2me :33 <br>
 &nbsp;&nbsp;&nbsp;&nbsp;hmu <a href="https://spacehey.com/soul3eater">soulspace</a>
 
-anw talkin about my project, i promise ill finish it soon!! :xx
+&nbsp;&nbsp;&nbsp;&nbsp;anw talkin' about my project, i promise ill finish it soon!! :xx
 
 <br clear="left">
