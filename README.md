@@ -1,5 +1,5 @@
 
-<img align="left" src="./jz.gif" width="250" hspace="20">
+<img align="left" src="./jz.gif" width="250" hspace="50">
 
 <h3>ABOUT ME</h3>
 
