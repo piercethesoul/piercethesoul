@@ -5,7 +5,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;usually on at 9am or 8pm!! on PT <br>
 &nbsp;&nbsp;&nbsp;&nbsp;often offtab :/ open c+h feel free to talk2me :33 <br>
-&nbsp;&nbsp;&nbsp;&nbsp;hmu on <a href="https://spacehey.com/soule3ater">soulspace</a> ࿐࿔ &nbsp;&nbsp;&nbsp;&nbsp;or sign on my <a href="https://jcew.atabook.org/">atta</a>
+&nbsp;&nbsp;&nbsp;&nbsp;hmu on <a href="https://spacehey.com/soul3eater">soulspace</a> ࿐࿔ &nbsp;&nbsp;&nbsp;&nbsp;or sign on my <a href="https://jcew.atabook.org/">atta</a>
 
       
 &nbsp;&nbsp;&nbsp;&nbsp;anw talkin' about my project, i promise ill finish it soon!! :xx
